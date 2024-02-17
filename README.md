@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning English language
 - 💞️ I’m looking to collaborate on IT recruiter network
 - 📫 How to reach me https://t.me/super_recruiter_nataliia 
+- 🧚‍♀️ https://www.linkedin.com/in/nataliia-boiko-recruiter/
 
 <!---
 Natla1994/Natla1994 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
